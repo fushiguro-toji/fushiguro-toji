@@ -1,13 +1,4 @@
-me and bae (im the rabbit
-
-![jjk-jujutsu-kaisen](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/57216a04-abfc-4f8f-bb46-794f0e679f7e)
-
-Huh? Huh? Huh? Huh? Huh? Huh? Huh?
-
-![toji-fushiguro-fight](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/ff9665f8-e26e-4294-9141-a6155d04b09a)
-
-look i made this! : ![ezgif com-crop_14](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/067cf4a7-dd0b-4750-b0c7-409874dc2ab5)
-
+![ezgif com-crop_14](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/067cf4a7-dd0b-4750-b0c7-409874dc2ab5) 
 ![tumblr_6639241485e4d8a44424d5068593d105_d1ee148c_100](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/f3049e2b-6c28-4fd8-bfdc-ef6cb26c24a5)
 ![tumblr_5e20b1bb3dbffcafb05a3a6a9763558d_829651b3_100](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/14e58b69-c596-4c7a-9244-fa77420b4485)
 ![tumblr_cf094699cab5be2e5e0a1dba11f12336_237c8067_100](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/46114938-2a2c-4b9c-8b3d-dc571aa3522a)
@@ -26,3 +17,11 @@ look i made this! : ![ezgif com-crop_14](https://github.com/fushiguro-toji/fushi
 ![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/4e452e07-391e-4dc5-87ad-174263bed65a)
 ![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/17d03439-0565-412c-b6ae-61222df45738)
 ![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/e04cc08e-3dd3-4418-9889-589bca516fd5)
+
+me and bae (im the rabbit
+
+![jjk-jujutsu-kaisen](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/57216a04-abfc-4f8f-bb46-794f0e679f7e)
+
+Huh? Huh? Huh? Huh? Huh? Huh? Huh?
+
+![toji-fushiguro-fight](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/ff9665f8-e26e-4294-9141-a6155d04b09a)
