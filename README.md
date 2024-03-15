@@ -1,5 +1,4 @@
-![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/9737056c-668f-4da3-9601-5395a1ad1d38)
- [![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/195af06d-dc14-4ce7-a8e3-043b8957fce6)](https://open.spotify.com/track/0yjjPY3VjIcjiEZ07D1myf?si=b288385736f94f00)
+  ![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/9737056c-668f-4da3-9601-5395a1ad1d38) [![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/195af06d-dc14-4ce7-a8e3-043b8957fce6)](https://open.spotify.com/track/0yjjPY3VjIcjiEZ07D1myf?si=b288385736f94f00)
 
 
 ![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/ea5cf1b6-e43c-4067-8da9-acb2df63e5c7)
