@@ -6,3 +6,4 @@
 
 ![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/73689a02-81cc-4973-9884-9e2bcce09491)
 
+![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/c14dbf4d-5613-4820-a58c-53f8c84c3483)
