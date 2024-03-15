@@ -1,4 +1,5 @@
-![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/0e09d81a-3ec6-46a2-a4b2-e84716086a96) [![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/195af06d-dc14-4ce7-a8e3-043b8957fce6)](https://open.spotify.com/track/0yjjPY3VjIcjiEZ07D1myf?si=b288385736f94f00)
+![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/9737056c-668f-4da3-9601-5395a1ad1d38)
+ [![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/195af06d-dc14-4ce7-a8e3-043b8957fce6)](https://open.spotify.com/track/0yjjPY3VjIcjiEZ07D1myf?si=b288385736f94f00)
 
 
 ![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/ea5cf1b6-e43c-4067-8da9-acb2df63e5c7)
@@ -13,4 +14,4 @@
 
 ![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/73689a02-81cc-4973-9884-9e2bcce09491)
 
-[![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/acdb7ea0-d402-41ae-ba49-87dc7b540000)](https://tommyshorts.carrd.co/assets/images/image19.jpg?v=163cd40d) ![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/b8a2efa9-cdd4-4e75-90ce-127d59ddb1cc)
+[![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/acdb7ea0-d402-41ae-ba49-87dc7b540000)](https://tommyshorts.carrd.co/assets/images/image19.jpg?v=163cd40d) ![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/528899e2-9bb8-4e70-873e-0980071950cd)
