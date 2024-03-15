@@ -7,6 +7,7 @@
 ![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/73689a02-81cc-4973-9884-9e2bcce09491)
 
 ![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/c14dbf4d-5613-4820-a58c-53f8c84c3483)
+
 [![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/672a0d2c-a4d8-44d9-9d2c-4a46a7139a32)](https://rentry.co/tojifushiguro) ![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/294e6461-ecdd-44b1-9529-567492ec67d7) [![image](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/4ffc72bc-83e2-4102-b760-3e668fcd9b2a)](https://rentry.co/stampede)
 
 
