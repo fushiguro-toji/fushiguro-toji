@@ -1,5 +1,3 @@
-@eatsleepedge
-
 ![ezgif com-crop_14](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/067cf4a7-dd0b-4750-b0c7-409874dc2ab5) 
 ![tumblr_6639241485e4d8a44424d5068593d105_d1ee148c_100](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/f3049e2b-6c28-4fd8-bfdc-ef6cb26c24a5)
 ![tumblr_5e20b1bb3dbffcafb05a3a6a9763558d_829651b3_100](https://github.com/fushiguro-toji/fushiguro-toji/assets/151678333/14e58b69-c596-4c7a-9244-fa77420b4485)
